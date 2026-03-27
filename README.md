@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @TheUnknownK1ng
+- 👋 Hi, I’m @medalsniper
 - 👀 I’m interested in life and coding
 - 😄 Pronouns: He / Him
 - ⚡ Fun fact: 1 + 1 = 2
